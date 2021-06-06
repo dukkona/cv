@@ -1,0 +1,1 @@
+## Curriculum vitae - Adam Dukkon
